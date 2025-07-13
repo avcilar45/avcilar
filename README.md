@@ -1,4 +1,4 @@
-# ❤️ Avcılar Escort – Hızlı, Güvenli ve Gizli Hizmetler ❤️
+# 😎 Avcılar Escort – Hızlı, Güvenli ve Gizli Hizmetler 😎
 
 [![TIKLA SİTEYE GİT](kiz.png)](https://pezevenkdayi.xyz)
 
